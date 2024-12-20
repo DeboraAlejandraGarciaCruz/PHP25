@@ -7,5 +7,4 @@ T
 Gatgha
 Ja
 Hshs
-Suus
 
