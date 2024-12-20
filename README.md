@@ -6,5 +6,3 @@ Hshshs
 T
 Gatgha
 Ja
-
-
