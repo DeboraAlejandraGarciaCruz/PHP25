@@ -3,6 +3,4 @@ kmlñ
 klñ{
 jkl
 jklñ
-lñ
-klñ
-klñ
+
