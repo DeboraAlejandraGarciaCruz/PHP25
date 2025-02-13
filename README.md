@@ -6,5 +6,3 @@ Fue
 Creado 
 Por
 Debora 
-Alejandra
-
