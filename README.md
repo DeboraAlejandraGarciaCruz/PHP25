@@ -7,5 +7,4 @@ Creado
 Por
 Debora 
 Alejandra
-García 
 
